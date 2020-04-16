@@ -1,6 +1,6 @@
 ## Presentación: 
 
-![Error: Foto](http://subefotos.com/ver/?d7f0f4e3eec3eb7d4d1387de6237560eo.jpg)
+![Error: Foto](https://serving.photos.photobox.com/63038869dc82def29ad2e4a72e4634b389a0da85c7d50dff93d99b2be4da84957802cc02.jpg)
 
 
 Hola mi nombre es Nahuel Nicosia, estoy cursando mayormente segundo año de Ingeniería en sistemas en UTN FRD. Me gusta mucho la música y el deporte, mis hobbies están relacionados a eso también.<br />
